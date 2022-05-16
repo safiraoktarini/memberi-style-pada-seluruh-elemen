@@ -1,0 +1,1 @@
+# memberi-style-pada-seluruh-elemen
